@@ -20,5 +20,7 @@ Digging of the foundation worth 60cm by 60cm was started by the vibrant youth fr
 7. Chandiga Moses
 
 The final general project documentation in GitHub is being done by;
-1. MR. KENYI GILBERT CHARLES
-2. MR. VUGA WILLIAM
+1. Mr. KENYI GILBERT CHARLES
+2. Mr. VUGA WILLIAM
+3. Mr. Gama Richard William
+4. 
